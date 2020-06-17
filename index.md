@@ -1,1 +1,2 @@
 # Das 5. Element
+Ein Weltraum-Märchen, quietschbunt, mit Monstern, dem Ritter, der Maid in Not. Excellent inszeniert, hervorragende Darsteller, seiner Zeit (etwas) voraus. Ein Pionierwerk des Kinos und zu Recht hier dargestellt. Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort Wort.

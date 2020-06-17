@@ -16,3 +16,9 @@ Ein Weltraum-Märchen, quietschbunt, mit Monstern, dem Ritter, der Maid in Not. 
 > [the weapon opens, and Zorg picks it up]
 >
 > Zorg: It's light. Handle's adjustable for easy carrying, good for righties and lefties. Breaks down into four parts, undetectable by x-ray, ideal for quick, discreet interventions. A word on firepower. Titanium recharger, three thousand round clip with bursts of three to three hundred, and with the Replay button - another Zorg invention - it's even easier.
+>
+> Zorg: If you want something done, do it yourself. Yep!
+
+[Gary Oldman in 2000, photographed and scanned from analogue, most specks removed (further cropped from original), published under CC-License]
+<img src="https://live.staticflickr.com/6077/6148772890_c89030ace0.jpg"/>
+

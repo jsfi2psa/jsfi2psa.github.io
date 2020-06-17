@@ -20,4 +20,5 @@ Ein Weltraum-Märchen, quietschbunt, mit Monstern, dem Ritter, der Maid in Not. 
 > Zorg: If you want something done, do it yourself. Yep!
 
 [Gary Oldman in 2000, photographed and scanned from analogue, most specks removed (further cropped from original), published under CC-License]
-<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/4/43/Gary_Oldman_in_2017_%2836334517524%29.jpg/330px-Gary_Oldman_in_2017_%2836334517524%29.jpg/" />
+<img src="https://live.staticflickr.com/6077/6148772890_c89030ace0.jpg"/>
+
